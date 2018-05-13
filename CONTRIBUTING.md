@@ -1,0 +1,1 @@
+Please see the [wiki](/jonasoreland/runnerup/wiki)
